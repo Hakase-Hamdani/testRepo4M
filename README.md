@@ -1,1 +1,3 @@
-My first COMMIT BABY! Let's Ffing GO!
+Aku ingin terus berada di sisimu.
+Selalu-selalu bersamamu.
+Tak bisa jika ku berada jauh darimu.
